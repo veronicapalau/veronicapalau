@@ -1,4 +1,4 @@
-### Olá, eu sou a Veronica Palau! 😊
+### Olá, eu sou a Ve! 😊
 
 - 👩‍🎓 Estou no último ano de Análise e Desenvolvimento de Sistemas
 - 👩‍💻 Estudando desenvolvimento web
